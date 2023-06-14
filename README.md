@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xvcql
+- 👀 I’m interested in python
+- 🌱 I’m currently learning ...A.I
+- 💞️ I’m looking to collaborate on PYTHON
+- 📫 How to reach me Whatsapp 03133061515
